@@ -1,0 +1,1 @@
+# Pr-tica-SQLite---Projeto-Buscapet
